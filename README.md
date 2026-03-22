@@ -1,0 +1,1 @@
+# logo-50th-kki-europe
